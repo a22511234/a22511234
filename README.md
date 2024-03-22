@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **a22511234@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1MMpIqMNKxxM0cQ73-FAhDre12jxd3zCo/view?usp=sharing](https://drive.google.com/file/d/1MMpIqMNKxxM0cQ73-FAhDre12jxd3zCo/view?usp=sharing)
+- 📄 Know about my experiences [https://howard0720.cc)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
